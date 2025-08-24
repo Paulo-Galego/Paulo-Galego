@@ -24,7 +24,7 @@
     
 </div><br/>
 
-Amo programar, diariamente programo no meu trablalho, mas também por hobby estudos todas novas tecnologias!
+Amo programar, diariamente programo no meu trabalho, mas também por hobby estudos todas novas tecnologias!
 
 ## Últimos trabalhos realizados
 
